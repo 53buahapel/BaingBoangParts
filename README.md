@@ -1,5 +1,4 @@
 # BaingBoangParts
 
-website ini adalah website toko milik paman saya dan saya adalah pembuatnya
-cektoko paman saya di 
+website ini adalah website toko
 instagram @baingboangparts
